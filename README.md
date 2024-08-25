@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GSampath-emo
 - 👀 I’m interested in Entrepreneurship Dev
-- 🌱 I’m currently learning Technologies and Tools & [Self-exploration].
+- 🌱 I’m currently learning Technologies and AI-Tools & [Self-exploration].
 - 💞️ I’m looking to collaborate on Join Entrepreneurial Networks ,Entrepreneurial Initiatives,Leadership...
 - 📫 How to reach me via LinkedIn www.linkedin.com/in/sampath-godhala 📞+91 8688341158 📧sampath.cse25@gmail.com and also github https://github.com/GSampath-emo.
 - 😄 Pronouns: Mr. (or)He/Him.
