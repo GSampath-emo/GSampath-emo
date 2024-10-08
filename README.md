@@ -5,6 +5,8 @@
 - 📫 How to reach me via LinkedIn www.linkedin.com/in/sampath-godhala 📞+91 8688341158 📧sampath.cse25@gmail.com and also github https://github.com/GSampath-emo.
 - 😄 Pronouns: Mr. (or)He/Him.
 - ⚡ Fun fact: "Bridging politics and entrepreneurship to drive innovation and community growth."
+- 🧑‍💻Tag line:"Coding the Future: Passionate About Technology and Innovation"
+
 ..........**********************...<@><@>...******************.............
   I am seeking a challenging career opportunity where I can utilize my abilities and skills to contribute to the growth and success of the organization
    while advancing my own professional development. Committed to continuous learning and skill seeker.
